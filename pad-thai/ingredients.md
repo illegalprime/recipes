@@ -1,0 +1,12 @@
+# Ingredients
+ - eggs
+ - flat rice noodles
+ - chopped garlic
+ - chopped shallots
+ - salted radish (chopped)
+ - meat
+ - unsalted peanuts (chopped)
+ - garlic chives
+ - bean sprouts
+ - julienned carrots
+ - lime wedges

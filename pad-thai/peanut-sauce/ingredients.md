@@ -1,0 +1,11 @@
+# Ingredients
+ - peanut oil, 2 tablespoons
+ - peanut butter, 1.5 cups
+ - water, 1/3 cup
+ - soy sauce, 1/3 cup
+ - coconut milk, 1 cup
+ - brown sugar, 1.25 cups
+ - lime juice, 1/3 cup
+ - garlic powder, 2 tablespoons
+ - paprika, 1 tablespoon,
+ - cayenne pepper, to taste
